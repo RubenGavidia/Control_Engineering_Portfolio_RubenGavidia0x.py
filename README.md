@@ -13,8 +13,11 @@ Control System Engineering:
 ![6](https://github.com/RubenGavidia/Engineering_Portfolio_RubenGavidia0x.py/blob/main/James_Clerk_Maxwell.py/python_calculationsUsingTime_Mechanical%20System%20Fluid%20Friction%20Simulink%20Control%20System%20Engineerig.png)
 ![7](https://github.com/RubenGavidia/Engineering_Portfolio_RubenGavidia0x.py/blob/main/James_Clerk_Maxwell.py/python_calculations2UsingTime_Mechanical%20System%20Fluid%20Friction%20Simulink%20Control%20System%20Engineerig.png)
 
+First Part 35$ Paypal
+
 ![first part](https://github.com/RubenGavidia/Engineering_Portfolio_RubenGavidia0x.py/blob/main/James_Clerk_Maxwell.py/Paypal%20Vouch%2035%20dollars%20first%20part%20Simulink%20Control%20System%20Engineering.png)
 
+<imgsrc="https://github.com/RubenGavidia/Engineering_Portfolio_RubenGavidia0x.py/blob/main/James_Clerk_Maxwell.py/Paypal%20Vouch%2035%20dollars%20first%20part%20Simulink%20Control%20System%20Engineering.png" width="400" height="790">
 
 References (Vector Mechanics Or Engineering Mechanics):
 
